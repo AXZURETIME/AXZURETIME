@@ -1,7 +1,5 @@
 HI my name is Matteo! I also go by Elio or Merritt (whichever is easier to remember!)
-i go by he/they pronouns - as i am a transgender male 
-gay - mlm - single
-17 yrs old - birthday is on 09/12 (December 9th)
+ he/they || transgender male || mlm || 7teen
 
 Pls read rentry for basic dni!
 byi ; 
