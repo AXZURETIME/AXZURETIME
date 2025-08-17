@@ -1,5 +1,5 @@
 <p align="center"><img src="https://i.postimg.cc/ZnF9Dg1z/IMG-7337.png" alt="82"/></p>
-<p align="center"><img scr="https://i.postimg.cc/6pZrRRQ1/IMG_9214.gif"/> <sup>HI my name is Matteo! I also go by Cassius (whichever is easier to remember!)</sup></p>
+<p align="center"><img scr="https://i.postimg.cc/6pZrRRQ1/IMG_9214.gif"/> <sup>HI my name is ᴀᴢᴜʀᴇ! I also go by ᴍᴀᴛᴛ (whichever is easier to remember!)</sup></p>
 
 <p align="center"> <sup> he/they || transgender male || mlm || 7teen</sup></p>
 
